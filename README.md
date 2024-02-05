@@ -14,3 +14,4 @@ Revelation 21:8 KJV
 It is not being a bigot to stand up for your faith as long as you are not trying to force your beliefs onto others.
 Racism has no place anywhere.
 Slavery has no place anywhere.
+-Joshua Sanford
