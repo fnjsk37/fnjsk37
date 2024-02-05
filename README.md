@@ -8,3 +8,9 @@
 fnjsk37/fnjsk37 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Exodus 20:1-17 KJV
+Leviticus 18:22 KJV
+Revelation 21:8 KJV
+It is not being a bigot to stand up for your faith as long as you are not trying to force your beliefs onto others.
+Racism has no place anywhere.
+Slavery has no place anywhere.
