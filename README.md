@@ -16,5 +16,5 @@ Racism has no place anywhere.
 Slavery has no place anywhere.
 Human/Labor trafficking is evil and has no place in this world.
 More people should be independent thinkers and not follow the crowd if the crowd is wrong.
-#independentvoter
+#independentvoter #politicsisnotmygod
 -Joshua Sanford
